@@ -11,7 +11,7 @@ David Goggins ရဲ့ Can’t hurt me ဆိုတဲ့ စာအုပ်က
 <myomyathan.dev@gmail.com> မေးလ်ပို့လိုက်ပါ။ စာအုပ်ပို့ပေးပါမယ်။
  Beat your inner BITCH !! Stay hard!
 
-**Interviews**
+**Podcasts**   
 <https://www.youtube.com/watch?v=5tSTk1083VY>
 <https://www.youtube.com/watch?v=BvWB7B8tXK8>
 <https://www.youtube.com/watch?v=Swj8GIIivXs>
